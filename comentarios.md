@@ -1,0 +1,6 @@
+# Muito bem!!!!
+
+Bravo, Numiá! Daqui a pouco os exercícios vão começar a ficar um pouquinho mais interessantes...
+Por enquanto tá fácil...
+
+Prof. Neylson
